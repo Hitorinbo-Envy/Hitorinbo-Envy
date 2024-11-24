@@ -1,4 +1,4 @@
-i absolutely love cuddles ! c+h pls idm !
+hihi you can call me marj / marji / marcy ! ( merge and mark are for friends only sighsh )
 <!--
 **Hitorinbo-Envy/Hitorinbo-Envy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
