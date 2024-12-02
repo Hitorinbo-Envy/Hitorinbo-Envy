@@ -1,4 +1,3 @@
-hihi you can call me marj / marji / kana
 ( merge and mark are for friends only sighsh )
 <!--
 **Hitorinbo-Envy/Hitorinbo-Envy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
