@@ -1,4 +1,4 @@
-( merge and mark are for friends only sighsh )
+guys my name isn't merge or mark
 <!--
 **Hitorinbo-Envy/Hitorinbo-Envy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
